@@ -1,0 +1,1 @@
+# GWE-EDM_ErdwinaNabilahPutri_Emission_Carbon_Coal
